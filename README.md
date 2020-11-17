@@ -1,1 +1,1 @@
-# ForAdMob
+Privacy Policies and AdMob Needs
